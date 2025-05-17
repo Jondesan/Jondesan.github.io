@@ -1,1 +1,2 @@
+- Chair of the astronomy students' association at the university of Helsinki, Meridiaani ry, 2025
 - Second place in the IndySCC (student cluster competition), Team Norppa, 2023
