@@ -8,7 +8,7 @@ I am currently pursuing a Master's Degree in Theoretical and Computational metho
 joonatan.huhtasalo[at]helsinki.fi
 
 #### Education
-MPhil, Theoretical and Computational Methods, University of Helsinki, 2024—2025 (expected).\
+MSci, Theoretical and Computational Methods, University of Helsinki, 2024—2025 (expected).\
 BSc, Theoretical Physics, University of Helsinki, 2020—2024.
 
 #### Research Interests
